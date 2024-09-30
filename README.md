@@ -33,8 +33,7 @@ One day, John was walking outside to play when he saw a big shadow. He asked a r
 John was confused, and decided to take a closer look. He was fascinated by the sight of the there he had come in across. Suddenly, he noticed a small light on the cloud that was glowing above the horizon. 
 John knew he had to have courage to get closer, so he grabbed the light and followed it. The light smoymed him and his eyes made suddenly proud that he had made it back just in time. 
 The moral of the story is that wisdom and using caution can be through unwilder situations. Listing to those advice out of them can always make them better, just like John had been told to be.
-<s>
- Once upon a time, there was a little girl named Lily. She had a sweet stuffed bear named Brownie. One day, Lily was playing with Brownie when she accidentally dropped him and
+Once upon a time, there was a little girl named Lily. She had a sweet stuffed bear named Brownie. One day, Lily was playing with Brownie when she accidentally dropped him and
 achieved tok/s: 56.255811*
 
 
